@@ -1,13 +1,11 @@
-👍EAI MEUS CAMARADAS😎
+![](https://media.tenor.com/HCF2gJUUdCsAAAAi/cannonbolt-dance.gif)EAI MEUS CAMARADAS![](https://media.tenor.com/HCF2gJUUdCsAAAAi/cannonbolt-dance.gif)
 
-Me chamo luis, mas podem me chmar de quatorze.
-
-vou passar um tempo aqui 
-To estudando no alura
-Sei algumas coisas de GameMarker e de javascript
-
+ - Me chamo Luis, mas podem me chamar de 14, pega melhor
+ - Gosto de programação🤓☝
+ - Sei algumas coisinhas de JavaScript e Game Marker
+ - Estudando na Alura
 
 
 ![](https://media1.tenor.com/m/Y4Q-m40rtIcAAAAd/gemaplys-yunlimassa.gif)
 
-![](https://media.tenor.com/HCF2gJUUdCsAAAAi/cannonbolt-dance.gif)
+
